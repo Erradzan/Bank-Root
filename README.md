@@ -1,1 +1,1 @@
-https://external-ibbie-erradzan-a60cb5cb.koyeb.app/
+https://criminal-cherri-erradzan-75f98c7b.koyeb.app/
